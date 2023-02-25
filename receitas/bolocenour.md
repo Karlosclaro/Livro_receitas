@@ -7,6 +7,7 @@
 - 2 xícaras (chá) de açúcar
 - 2 e 1/2 xícaras (chá) de farinha de trigo
 - 1 colher (sopa) de fermento em pó
+- Uma pitada de sal
 
 ### Cobertura
 - 1 colher (sopa) de manteiga
