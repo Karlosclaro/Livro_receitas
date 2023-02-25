@@ -5,8 +5,8 @@
 - 3 cenouras médias raladas
 - 4 ovos
 - 2 xícaras (chá) de açúcar
--2 e 1/2 xícaras (chá) de farinha de trigo
-1 colher (sopa) de fermento em pó
+- 2 e 1/2 xícaras (chá) de farinha de trigo
+- 1 colher (sopa) de fermento em pó
 
 ### Cobertura
 - 1 colher (sopa) de manteiga
